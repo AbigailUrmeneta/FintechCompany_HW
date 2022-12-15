@@ -1,1 +1,0 @@
-# FintechCompany_HW
